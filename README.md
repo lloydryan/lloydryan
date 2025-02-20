@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **largolloydryan0@gmail.com**
 
-- ⚡ Fun fact **I'm Love Money💸💸💸💸💸**
+- ⚡ Fun fact **I Love Money💸💸💸💸💸**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
