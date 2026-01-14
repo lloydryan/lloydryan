@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=lloydryan" alt="lloydryan" /></a> </p>
 
-- 🔭 I’m currently working on **Personal Projects**
+- 🔭 I’m currently working on **University of Mindanao**
 
 - 🌱 I’m currently learning **Laravel**
 
